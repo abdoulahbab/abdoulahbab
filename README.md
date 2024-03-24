@@ -1,5 +1,5 @@
-### Hi there 👋
-
+### Hi people 👋
+🌱 Currently nurturing my curiosity by learning anything that ignites my interest.
 <!--
 **abdoulahbab/abdoulahbab** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
